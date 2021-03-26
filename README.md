@@ -1,2 +1,0 @@
-# japanese
-To learn japanese
